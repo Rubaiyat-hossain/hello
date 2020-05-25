@@ -1,1 +1,1 @@
-This is just a prastise for my experinece. 
+This is just a practise for my experinece. 
